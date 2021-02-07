@@ -1,4 +1,5 @@
 INSTRUCTIONS:
+
 1.firstly, in a large kadai heat 3 tbsp oil and splutter 1 tsp mustard, 1 tsp jeera and few curry leaves.
 
 2.also add ¼ tsp turmeric, 1 tsp chilli powder, 1 tsp coriander powder and 1 tsp garam masala.
